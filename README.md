@@ -1,8 +1,8 @@
 ### Hey there, I'm Josh! 
 
-I'm a Mechatronics Engineering student studying at UWaterloo.  <br>
+I'm a Mechatronics Engineering student studying at UWaterloo ⚙️. <br>
 
-My interests include vehicle automation, electrification, and all things aerospace. <br>
+My interests include vehicle automation, electrification, and all things aerospace 🚀. <br>
 
 When I'm not working on a new design, I enjoy playing the bass guitar and doing stupid challenges with my friends 😅
 
