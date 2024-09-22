@@ -4,7 +4,7 @@
 
 🚀 My interests include automation, electrification, and all things aerospace. <br>
 
-😅 When I'm not working on a new design, I enjoy playing the bass guitar and doing stupid challenges with my friends 
+😅 When I'm not working on a new design, I enjoy playing the bass guitar and testing my physical limits through running, biking, and swimming
 
 <br> For more information related to my past projects, check out my website at https://joshuaharper.ca/
 <br> Follow me on LinkedIn to stay up-to-date with things I'm working on: https://www.linkedin.com/in/joshuaharper0/
